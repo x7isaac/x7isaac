@@ -1,0 +1,4 @@
+- 👋 olá, eu me chamo isaac ...
+- aprender sobre programacao
+- atualmente quero aprender a programar
+- quero ser um otimo programadormeu gmail isaac.donato.santos@escola.pr.gov.br
